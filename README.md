@@ -1,7 +1,7 @@
 Wassup
 ------
 
-Hello, I am Skell, or Simply\_Romeo. I currently am a HS student who is also a programmer who inspires to be work for DHS CISA. \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+Hello, I am Skell, or Simply\_Romeo. I currently am a HS student who is also a programmer. \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
 * 🌍  I'm based in Michigan, The United Sates of America.
 * ✉️  You can contact me at [momymilkyplease@gmail.com](mailto:momymilkyplease@gmail.com)
